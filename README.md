@@ -5,4 +5,11 @@ To get access, pay 50USD to lmao-how-can-someone-pay-wall-garbage-like-this-when
 
 
 
+
+
+
+
+
+-----
+
 This is a parody on how ZorinOS Pro is paywalled for 50USD, even though the only things it introduces are in one repository and they're already available normally lmao. Wow.
